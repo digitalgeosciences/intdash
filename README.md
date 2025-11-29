@@ -1,3 +1,3 @@
-# thankyou - comeback later!
+# thankyou - coming soon!
 
 Thank you!
